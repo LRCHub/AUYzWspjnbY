@@ -1,0 +1,91 @@
+# Charlie Puth – Home
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Through the rose-colored lenses
+(Lenses)
+And the white picket fences
+(Fences)
+No matter how good this is,
+could never satisfy
+(Satisfy)
+When it's you that I'm missin'
+(Missin')
+Now I sit in the kitchen
+(Kitchen)
+Through the windowpane,
+I watch the day turn to night
+(Night)
+It ain't a mystery
+That every time you leave
+That's when I feel the
+most alone, oh
+Ooh, don't you know
+That you're the one who
+makes this house a home?
+(House a home)
+And so, when you go
+(When you go)
+It feels so cold without
+the soul
+You're the one who makes
+this house a home
+Mm, mm
+一人の時間も大切
+(大切)
+誰にも妥協せず
+(妥協せず)
+私だけのお城を築いた
+But it's you I was missin'
+(Missin')
+君に毎日ただいまと言わせてください
+いってらっしゃい
+君がいないこの家は好きじゃない
+Ooh, don't you know
+(Don't you know)
+That you're the one who
+makes this house a home?
+(House a home)
+And so
+(So)
+when you go
+(When you go)
+夏でも凍えちゃいそう
+君の温もりが home
+Ooh, you're the one
+(You're the one)
+You're the one who makes
+this house a home
+House a home, house a home,
+house a home
+You're the one, you're the one,
+oh
+It ain't a mystery
+That every time you leave
+That's when I feel the
+most alone, oh
+当たり前になりそうな時
+思い出してほしい
+Ooh, don't you know
+(Ooh, don't you know)
+That you're the one who
+makes this house a home?
+(Oh, you're the one)
+And so, when you go
+(When you go)
+It feels so cold without
+the soul
+(The soul)
+You're the one who makes
+this house a home
+ある日楽園で目が覚めても
+君がいなきゃ長居しないね
+どんな豪邸手に入れたって
+君がいなきゃハリボテ同然
+Oh,
+you're the one who makes
+this house a home
+You made this house a home, oh,
+oh, oh
+```
